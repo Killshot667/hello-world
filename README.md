@@ -1,2 +1,2 @@
 # hello-world
-getting started with my first repository
+im agod among peasant and sea lions alike.
